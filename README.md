@@ -23,8 +23,9 @@ Lately, I've been integrating **AI tools** into almost everything I do, from cod
 ---
 
 ## 📫 Contact me:
-- ✉️ Email: gundul321mmm@gmail.com  
-- 🔗 LinkedIn: [linkedin.com/in/achmad-danni-mpa-04b7a1252](https://www.linkedin.com/in/achmad-danni-mpa-04b7a1252/)
+- ✉️ Email: gundul321mmm@gmail.com
+- 🎮 Steam: [ADanniMPA](https://steamcommunity.com/id/ADanniMPA/)
+- 🔗 LinkedIn: [Achmad Danni MPA](https://www.linkedin.com/in/achmad-danni-mpa-04b7a1252/)
 
 ---
 
