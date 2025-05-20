@@ -16,9 +16,7 @@ Lately, I've been integrating **AI tools** into almost everything I do, from cod
 ---
 
 ## 🚧 What I’m working on:
-- Building a cleaner portfolio (it's under construction, I promise)
-- Exploring backend, testing, and system analysis for internship prep
-- Slowly making peace with Git
+- Learn to use Unity
 
 ---
 
